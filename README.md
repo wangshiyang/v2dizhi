@@ -1,9 +1,9 @@
 # V2porn最新地址
 
-  herv2.com
+  http://herv2.com
   
-  veryv2.com
+  http://veryv2.com
   
-  sisv2.com
+  http://sisv2.com
   
-  v2fry.com
+  http://v2fry.com
